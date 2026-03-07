@@ -21,8 +21,8 @@
 ---
 
 ### 📫 Connect with Me
-- 💼 [LinkedIn](https://www.linkedin.com/)  
-- 📧 Email: your.email@example.com  
+- 💼 [LinkedIn](www.linkedin.com/in/pratik-galave-6114a1254)  
+- 📧 Email: pratikgalave@outlook.com  
 
 ---
 
